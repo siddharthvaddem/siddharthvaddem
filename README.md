@@ -1,5 +1,1 @@
-
-
-![Hi , I'm](https://user-images.githubusercontent.com/70214527/150285898-7f9b6199-aba4-4008-b424-037d8dae16d9.gif)
-  
- 
+![Hi, there](https://github.com/siddharthvaddem/siddharthvaddem/assets/70214527/2f6f973c-e7a7-4305-a83d-ecf33f10f84e)
